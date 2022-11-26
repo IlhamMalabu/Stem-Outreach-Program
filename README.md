@@ -9,6 +9,6 @@ The outcome of the program was successful with students reporting back that thei
 
 ![](https://github.com/IlhamMalabu/Stem-Outreach-Program/blob/main/images/IMG_6286.JPG)
 ![](https://github.com/IlhamMalabu/Stem-Outreach-Program/blob/main/images/IMG_6287.JPG)
-![](https://github.com/IlhamMalabu/Stem-Outreach-Program/blob/main/images/IMG_8483 copy 2.JPG)
-![](https://github.com/IlhamMalabu/Stem-Outreach-Program/blob/main/images/IMG_8541 final.JPG)
+![](https://github.com/IlhamMalabu/Stem-Outreach-Program/blob/main/images/IMG_8483 copy 2.jpg)
+![](https://github.com/IlhamMalabu/Stem-Outreach-Program/blob/main/images/IMG_8541 final.jpg)
 ![](https://github.com/IlhamMalabu/Stem-Outreach-Program/blob/main/images/IMG_8734.JPG)
