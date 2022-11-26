@@ -6,3 +6,9 @@ The programming workshops were held over three weeks teaching fundamentals in HT
 The Seminar focused on Motivation, Creativity and Innovation. These are key in a pursuit of a STEM Career.
 The outcome of the program was successful with students reporting back that their perception of STEM had cheanged positively.
 
+
+![](https://github.com/IlhamMalabu/Stem-Outreach-Program/blob/main/images/IMG_6286.JPG)
+![](https://github.com/IlhamMalabu/Stem-Outreach-Program/blob/main/images/IMG_6287.JPG)
+![](https://github.com/IlhamMalabu/Stem-Outreach-Program/blob/main/images/IMG_8483 copy 2.JPG)
+![](https://github.com/IlhamMalabu/Stem-Outreach-Program/blob/main/images/IMG_8541 final.JPG)
+![](https://github.com/IlhamMalabu/Stem-Outreach-Program/blob/main/images/IMG_8734.JPG)
